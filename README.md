@@ -35,9 +35,17 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Vlysses vpon Aiax. Written by Misodiaboles to his friend PhilaretesMisodiaboles.1596Approx. 81 KB of
+
+1. Misodiaboles the worshipfull, to Misacmos the right worshipfull.
+
 #####Body#####
-Vlysses vpon Aiax. Written by Misodiaboles to his friend PhilaretesMisodiaboles.1596Approx. 81 KB of
+
+1. Misodiaboles and his opinion of Misacmos and his metamorphosed Aiax, written to his deere and learned friende Master Philaretes.
+
+1. Misodiabolês examination of Misacmos authorities, and argumentes.
+
+1. Misodiaboles Perfume for filthy smels, containing a mad Purge for Misacmos Lunacie of wit.
+
 **Types of content**
 
   * There are 10 **verse** lines!
